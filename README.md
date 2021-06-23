@@ -1,2 +1,2 @@
 ## Digital Streetart
-Eine StartUp Idee aus dem Herzen Regensburgs. 
+Wir sind Digital Sreetart, ein StartUp Unternehmen aus dem Herzen Regensburgs. Was wir machen? Wir wollen eine umweltfreundlichere Alternative zu dem konventionellem Graffiti sprühen bieten! 
